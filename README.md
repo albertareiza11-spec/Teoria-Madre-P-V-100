@@ -1,4 +1,4 @@
-                Teoría Madre variable100
+                Teoría-Madre-variable100
 ​Autor: Albert de Jesús Bustamante Areiza
 Axioma Central: La realidad es un Bloque Sólido, Traslúcido e Incompresible, rechazando el concepto de vacío o azar. El universo funciona como un hardware eterno y auditable.  
 
